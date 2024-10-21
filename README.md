@@ -2,7 +2,7 @@
 - 👀 I’m interested in ai&game development
 - 🌱 I’m currently learning OpenGL&UE
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me elaina.com@gmail.com
+- 📫 How to reach me elaina.qvq@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: nothing
 
